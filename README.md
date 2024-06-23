@@ -1,1 +1,1 @@
-Les Information du projet N-reines sont tous mentionnées dans le rapport.
+Les Information du projet sont tous mentionnées dans le rapport.
